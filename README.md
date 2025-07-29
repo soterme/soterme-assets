@@ -1,0 +1,1 @@
+# soterme-assets
